@@ -1,1 +1,1 @@
-For help and suggestions join https://discord.gg/pbVuUgcKzf
+For help and suggestions join https://discord.gg/pbVuUgcKzf!
